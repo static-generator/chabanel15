@@ -3,5 +3,6 @@
 Naga city
 
 
+How to play soccer
+![image](https://github.com/user-attachments/assets/8a92592a-b588-471b-84ba-517903e40363)
 
-![image](https://github.com/user-attachments/assets/da6fff46-1595-47f5-b161-0ca02b2a17c4)
