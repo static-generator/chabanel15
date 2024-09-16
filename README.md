@@ -12,4 +12,4 @@ learn How to play soccer with me
 learn how to kick the ball
 
 
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/cbadb3c9-8a6d-4a14-a345-223ed5a89f7c)
